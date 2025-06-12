@@ -15,7 +15,8 @@
 * When it is fully mixed, put into a mold and bake it for at least twenty minutes. Enjoy!
 * Don´t forget to share, baby don´t be mean. Kisses Kisses and love for you... only if you are queer... BECAUSE WE ARE IN PRIDE MONTH NOT STRAIGHT MONTH, OKAY? YOU DON´T WANT TO GET TROUBLES WITH ME. Bye!
 
-![ ](https://i.pinimg.com/474x/70/e2/59/70e259fdbf9ac2db5bb9f6579a5e4992.jpg)
+* OMG! I will copy you recipe and sell it and become a millionare and give you just one dollar! ILY
+
 ![ ](https://bakingamoment.com/wp-content/uploads/2016/10/IMG_8205-brownie-recipe.jpg)
 
 
