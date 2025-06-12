@@ -8,7 +8,12 @@
 * Chocolate bar
 * vanilla extract
 ## Instructions
-* Heat the butter and add 2 eggs, add a tablespoon of vanilla extract and 100 grams of sugar, mix until integrate all the liquid ingredients. Add the powdery ingredients and cut the chocolte bar into little pieces, add that toy you preparation too, mix genty until you get a smooth mixture. When it is ready put into a mold and bake it for at least twenty minutes. Enjoy!
+* Heat the butter and add 2 eggs, mix until integrate both ingredients.
+* Add a tablespoon of vanilla extract and 100 grams of sugar, mix until integrate with all the liquid ingredients. 
+* Add the powdery ingredients and cut the chocolte bar into little pieces, put this mix in your preparation 
+* Mix genty until you get a smooth mixture. 
+* When it is fully mixed, put into a mold and bake it for at least twenty minutes. Enjoy!
+* Don´t forget to share baby don´t be mean.
 
 ![ ](https://bakingamoment.com/wp-content/uploads/2016/10/IMG_8205-brownie-recipe.jpg)
 
