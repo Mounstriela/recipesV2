@@ -13,7 +13,7 @@
 * Add the powdery ingredients and cut the chocolte bar into little pieces, put this mix in your preparation 
 * Mix genty until you get a smooth mixture. 
 * When it is fully mixed, put into a mold and bake it for at least twenty minutes. Enjoy!
-* Don´t forget to share, baby don´t be mean. Kisses Kisses and love for you... only if you are queer. Bye!
+* Don´t forget to share, baby don´t be mean. Kisses Kisses and love for you... only if you are queer... BECAUSE WE ARE IN PDRIDE MONTH NOT STRAIGHT MONTH, OKAY? YOU DON´T WANT TO GET TROUBLES WITH. Bye!
 
 ![ ](https://bakingamoment.com/wp-content/uploads/2016/10/IMG_8205-brownie-recipe.jpg)
 
